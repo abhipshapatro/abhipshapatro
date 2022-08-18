@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **ReactJS**
 
-- 👯 I’m looking to collaborate on **any Frontend project**
+- 👯 I’m looking to collaborate on **FrontEnd/FullStack project**
 
 - 🤝 I’m looking for help with **ReactJS**
 
