@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **abhipsha.patro63@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1LBytG8draH8qylFlkKamp50fgoo9ceD0/view?usp=sharing](https://drive.google.com/file/d/1LBytG8draH8qylFlkKamp50fgoo9ceD0/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1gUdSL7Ud8nzeiEdHWnioWgjG610SZ9Ea/view?usp=sharing](https://drive.google.com/file/d/1gUdSL7Ud8nzeiEdHWnioWgjG610SZ9Ea/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am a great company and funny too!**
 
