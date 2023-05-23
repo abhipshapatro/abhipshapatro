@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **anything. I'd love to help if I know :)**
 
-- 📫 How to reach me **abhipsha.patro63@gmail.com**
+- 📫 How to reach me **abhipsha2022@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1LBytG8draH8qylFlkKamp50fgoo9ceD0/view?usp=sharing](https://drive.google.com/file/d/1LBytG8draH8qylFlkKamp50fgoo9ceD0/view?usp=sharing)
 
